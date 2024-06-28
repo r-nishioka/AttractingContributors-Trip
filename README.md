@@ -1,1 +1,2 @@
 What do you often buy at Daily Yamazaki?
+- sweets
