@@ -32,3 +32,4 @@ https://github.com/NAIST-SE/AttractingContributors/discussions/4 (Discussion)
 6. Smartwatch
 7. wired headset
 8. BAFFALO SSD
+9. Kindle Paperwhite (e-book reader)
