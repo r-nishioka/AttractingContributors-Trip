@@ -10,5 +10,5 @@ Please share places in Japan you like or would like to trip!
 6. Tottori
 7. Nagano
 8. Nagasaki
-9.
+9. Hokkaido
 10.
