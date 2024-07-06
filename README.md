@@ -11,4 +11,6 @@ Please share places in Japan you like or would like to trip!
 7. Nagano
 8. Nagasaki
 9. Hokkaido
-10.Nagoya
+10. Nagoya
+11. NAIST
+12. Nagoya
