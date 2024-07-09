@@ -4,3 +4,4 @@ What do you often buy at Daily Yamazaki?
 - Boss coffee
 - sweets
 - Vegetable juice
+-　Coca cola zero
