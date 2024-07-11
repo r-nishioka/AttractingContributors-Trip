@@ -5,3 +5,4 @@ What do you often buy at Daily Yamazaki?
 - sweets
 - Vegetable juice
 - food
+-　Coca cola zero
