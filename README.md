@@ -5,3 +5,7 @@ What do you often buy at Daily Yamazaki?
 - sweets
 - Vegetable juice
 - Ice Cream
+- NAIST T-shirt
+- Water
+- food
+-　Coca cola zero
